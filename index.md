@@ -1,6 +1,7 @@
 <h1>Why Ubud is the First Choice for Travelers Around the World</h1>
 When it comes to choosing a tourist destination, Bali comes in the top-notch. It is a dreamland for many travelers to explore this paradise. It is the only place where you can find the picturesque land, rice paddy field, and active-volcano is amazing things to visit. There are many things to discover in Bali, from the historical monument, temples to the white sand beaches in the south, and many more.
 
+
 Bali has many historical places in its pools that one cannot explore the whole island in a week-long vacation. From many idyllic yoga retreats, cultural activities to gastronomical delights, Bali is for everyone to enjoy this island of God.  
 
 <p>When it comes to exploring Bali, Ubud is the first tourist attraction that inevitably becomes a memorable trip for you. It is the heart of Bali and considered the best tropical vacay for many travelers around the world. Here you’ll find Balinese culture, ancient temples, and traditional dance. The busy streets in the town of Ubud are brimming with gastronomical delights, shops, and <a href ="https://rishikeshvinyasayogaschool.com/2019/10/29/top-5-yoga-centers-in-bali-yoga-retreats-training-schools/">yoga retreats</a> mesmerizes tourists.</p>
