@@ -5,7 +5,7 @@ When it comes to choosing a tourist destination, Bali comes in the top-notch. It
 Bali has many historical places in its pools that one cannot explore the whole island in a week-long vacation. From many idyllic yoga retreats, cultural activities to gastronomical delights, Bali is for everyone to enjoy this island of God.  
 
 <p>When it comes to exploring Bali, Ubud is the first tourist attraction that inevitably becomes a memorable trip for you. It is the heart of Bali and considered the best tropical vacay for many travelers around the world. Here you’ll find Balinese culture, ancient temples, and traditional dance. The busy streets in the town of Ubud are brimming with gastronomical delights, shops, and <a href ="https://rishikeshvinyasayogaschool.com/2019/10/29/top-5-yoga-centers-in-bali-yoga-retreats-training-schools/">yoga retreats</a> mesmerizes tourists.</p>
-<img src="https://cdn.pixabay.com/photo/2020/02/26/06/19/bali-4880746_960_720.jpg" alt="yoga teachers training in Bali" height="400" width="600"></img>
+<img src="https://cdn.pixabay.com/photo/2020/02/26/06/19/bali-4880746_960_720.jpg" alt="yoga teachers training in Bali" height="400" width="600">
 <h2>Know the reason why Ubud is the first choice for travelers around the world</h2>
 <h3>Best for Rice paddy field with scenic beauty</h3>
 
